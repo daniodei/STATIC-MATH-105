@@ -1,0 +1,1 @@
+# STATIC-MATH-105
